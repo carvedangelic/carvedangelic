@@ -10,7 +10,7 @@ WIWPWIWPWPWIWPWPWP UGHHH.
 
 ---
 signing linkkksss..:
-*sign id u want, i love seeing them!!*
+*sign if u want, i love seeing them!!*
 
 
 ‎[atabook!](https://callmeyourangel.atabook.org/)
