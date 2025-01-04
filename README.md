@@ -21,4 +21,3 @@ idk im lazy to create grahpixs this workfls
 
 [my wall of text !](https://walloftext.co/gay-men-at-your-area)
 
-[ everything goes to the creators, i recolored most ! ]
