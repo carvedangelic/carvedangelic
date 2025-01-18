@@ -1,10 +1,11 @@
 
-![IMG_5929](https://github.com/user-attachments/assets/ef4c459c-f407-4409-9430-c920948ac163)
+![Untitled15_20250118105055](https://github.com/user-attachments/assets/3a6c1c63-fe55-408d-8d39-e6e7b099a41f)
 
 
-idk im lazy to create grahpixs this workfls
 
+idk im lazy to create grahpixs this work ig
 
+PSP WISH ME LUCK IM GONNA DAIL 3 SUBJECTS PROBALLY DIEIOZOXOD
 
 
 ---
